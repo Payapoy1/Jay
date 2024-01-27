@@ -1,2 +1,2 @@
 # Jay
-Nais kung pa
+Nais kung matutu pa.
